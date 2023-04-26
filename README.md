@@ -8,6 +8,4 @@
 
 
 
-Video URL : 
-
-Report Link : 
+Video URL : https://youtu.be/GT-IGYmMsW8
